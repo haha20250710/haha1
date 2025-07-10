@@ -10,4 +10,4 @@
 
 这些平台汇集了丰富的国产欧美日韩精品A在线看资源，涵盖日韩专区、无码视频及成人大片。视频均支持多清晰度播放，确保观看流畅。每部影片均附详细介绍及演员名单，便于用户选择。国产精品日韩专区与一级黄色生活大片持续更新，满足不同观众需求。
 
-<span style="display:none;">[Canonical link]()</span>
+<span style="display:none;">[Canonical link](https://github.com/haha20250710/haha1)</span>
